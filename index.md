@@ -9,3 +9,6 @@ The Hulk is a fictional superhero appearing in publications by the American publ
 * plays the guitar very well
 
 > I am sooooo green (and angry)
+
+"HULK me" by Juliett-Foxtrott is licensed under CC BY-NC-ND 2.0
+<img src="https://flic.kr/p/4XoaD5"/>
