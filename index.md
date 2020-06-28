@@ -7,3 +7,5 @@ The Hulk is a fictional superhero appearing in publications by the American publ
 * loves cookies
 * loves the colour green
 * plays the guitar very well
+
+> I am sooooo green (and angry)
